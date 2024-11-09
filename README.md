@@ -27,8 +27,8 @@ Insert _sexy self_ Here - *fumbles selfie stick*
 *** New Album releasing soon! ***
 
 - [Groups Official Website](https://adjustthefacts.ca)
-- [Youtube]([https://youtube.com/](https://www.youtube.com/@adjustthefacts981)
-- [SoundCloud]([https://soundcloud.com/](https://soundcloud.com/adjust-the-facts)
+- [YouTubes](https://www.youtube.com/@adjustthefacts981)
+- [SoundCloud](https://soundcloud.com/adjust-the-facts)
 - [MORE TO COME](https://github.com/Atomic0utlaw/Atomic0utlaw/edit/main/README.md)
 
 ## Need Webhosting or Web Design services?
