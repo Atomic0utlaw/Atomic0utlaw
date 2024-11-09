@@ -4,7 +4,7 @@
 
 
 ## About Me:
-Image Here *fumbles selfie stick*
+Insert _sexy self_ Here - *fumbles selfie stick*
 
 ### Hobbies & Interests
 - Thing 1 - not like _The Cat in The Hat_ Thing 1, it's just a place holder
@@ -13,8 +13,8 @@ Image Here *fumbles selfie stick*
 - & Other Stuff
 
 ### Socials:
-- 178 765 990 - Social Insurance...
-- 123 456 789 - Not my actual 
+- 613 765 9905 - Sell Phone test me random -foot-, erm food pictures. **PLEASE DONT. I ACTUALLY HAVE NO IDEA WHO THIS IS**... *sorryyyy*
+- 123 456 789 - Social Insurance... Not my actual
 - @imhim - @Platform
 - @foundme - @other platform
 - @you-never-actually-found-me-i-told-you - @another platform
@@ -26,10 +26,10 @@ Image Here *fumbles selfie stick*
 ### If you like HipHop feel free to Support My Groups music - no pressure, we understand its not for everyone!
 *** New Album releasing soon! ***
 
-[Groups Official Website](https://adjustthefacts.ca)
-[Youtube]([https://youtube.com/](https://www.youtube.com/@adjustthefacts981)
-[SoundCloud]([https://soundcloud.com/](https://soundcloud.com/adjust-the-facts)
-[MORE TO COME](https://github.com/Atomic0utlaw/Atomic0utlaw/edit/main/README.md)
+- [Groups Official Website](https://adjustthefacts.ca)
+- [Youtube]([https://youtube.com/](https://www.youtube.com/@adjustthefacts981)
+- [SoundCloud]([https://soundcloud.com/](https://soundcloud.com/adjust-the-facts)
+- [MORE TO COME](https://github.com/Atomic0utlaw/Atomic0utlaw/edit/main/README.md)
 
 ## Need Webhosting or Web Design services?
 [Contact Me](mailto:#) - will add secure method/details later
